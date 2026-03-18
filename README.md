@@ -1,4 +1,6 @@
-## Hi there 👋
+stop using fancy fonts or low contrast color i cant read your rentries/strawpages/githubs/etc. STOP USING FUCKING FONTS ON YOUR GITHUBS I CANT READ THEM
+
+dni scout tf2 /srs
 
 <!--
 **2-time/2-time** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
